@@ -1,2 +1,2 @@
 # Picons
-Picons archived by @meliosolo
+Picons by @meliosolo archived.
